@@ -1,1 +1,2 @@
 # my-tutoring-slides
+I have uploaded 'SAMPLES' of my tutoring slides here, which I personally made for my tutoring. All files and full access will only be given to my students or employers who would like to have a look at them.
